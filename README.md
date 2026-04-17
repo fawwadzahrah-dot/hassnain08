@@ -1,11 +1,4 @@
-<h4 align="center">Software Engineering student at FAST NUCES. 
-
-Experienced and worked on LLM's, Agents, ML/AI, C/C++, Python, Java, Databases
-
-Expertise in data visualization, particularly using Power BI.
-
-Currently in my 6th semester seeking knowledge and working on projects to gain hands-on experience and apply my skills in real-world scenarios. I am eager to work with like-minded professionals and contribute to projects that make a difference.</h4>
-
+i ruined my bestfriends life as if it was nothingg i left someone after promies not even that im not even caring to seeee what happened whyyy they are asking to contact because my parents come first and kisi ki beti someone imw with bachpan se goes to hell
 ###
 
 <div align="center"t
